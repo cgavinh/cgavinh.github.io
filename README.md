@@ -1,2 +1,0 @@
-# cgavinh.github.io
-Website
